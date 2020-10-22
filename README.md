@@ -1,1 +1,1 @@
-# Rizqulloh195410188.github.io
+# Rizqulloh Rifqi E (195410188)
